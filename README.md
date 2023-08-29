@@ -1,1 +1,1 @@
-My first readme
+Christ is for all
